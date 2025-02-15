@@ -1,1 +1,10 @@
 https://mathcord.com/
+https://strongdogunblocked.github.io/
+https://weakcatxp.github.io/
+https://injex-2642ef349319.herokuapp.com/?id=13
+https://injex-2642ef349319.herokuapp.com/?id=14
+https://injex-2642ef349319.herokuapp.com/?id=15
+https://injex-2642ef349319.herokuapp.com/?id=18
+https://injex-2642ef349319.herokuapp.com/?id=19
+https://injex-2642ef349319.herokuapp.com/?id=20
+https://injex-2642ef349319.herokuapp.com/?id=1
